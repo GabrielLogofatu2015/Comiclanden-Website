@@ -6,3 +6,5 @@ The reason why you cannot open the Comics button is because I was lazy. So inste
 I think that's all I have to say.
 
 GET THE SB3 FILE OR OPEN THE WEBSITE NOW IF YOU WANT!
+
+website since I can't host it: https://comiclanden-turbowarp.edgeone.app/
